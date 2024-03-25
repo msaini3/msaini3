@@ -20,3 +20,9 @@ Here are some ideas to get you started:
 ## About Me 💁‍♀️
 
 #### I'm all about tech, creativity, and empowering others to pursue their dreams in the digital world. When I'm not coding, you can find me exploring new coffee shops ☕, playing with my doggo, or planning my next travel adventure ✈️.
+
+## Let's Connect! 🤝
+
+### - LinkedIn: [Connect with me on LinkedIn!] www.linkedin.com/in/msaini916
+
+

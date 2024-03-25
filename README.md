@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+### I'm Manu, a passionate tech nerd who loves coding and creating cool stuff. Welcome to my GitHub profile! 💻✨
+
+## About Me 💁‍♀️
+
+#### I'm all about tech, creativity, and empowering others to pursue their dreams in the digital world. When I'm not coding, you can find me exploring new coffee shops ☕, playing with my doggo, or planning my next travel adventure ✈️.
